@@ -1,5 +1,8 @@
 
 ### Olá, eu sou o Igor Bieber ✌️
+
+![gif-jdm](https://user-images.githubusercontent.com/103890069/168690803-19da625e-d471-40f5-aae4-203acee690b7.gif)
+
 ### Estudo no [Centro Universitário UniAmérica Descomplica](https://uniamerica.br)😉
 <br/>
  
